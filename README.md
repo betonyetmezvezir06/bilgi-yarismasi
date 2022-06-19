@@ -1,0 +1,2 @@
+# bilgi-yarismasi
+f
